@@ -1,2 +1,1 @@
-个人blog
-hello world
+GDP ZB Love Each other!!!
